@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jadhavnilesh7479@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1f57j-_GMhvh4pHNjPlRB_Q2Rgj6WWnTn/view?usp=sharing(https://drive.google.com/file/d/1p56bj0gd6yi6_nAw10GBY_yQ6y3K0qrk/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1f57j-_GMhvh4pHNjPlRB_Q2Rgj6WWnTn/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
